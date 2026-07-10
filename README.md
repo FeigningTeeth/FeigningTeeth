@@ -2,7 +2,6 @@
 <blockquote><p style="text-align:center"><code>Art</code> : <a href="https://tearavynn.carrd.co/">Carrd</a> 🎨</p><p style="text-align:center"><code>About</code> : <a href="https://itstea.straw.page">Strawpage</a> ✨️</p></blockquote><p style="text-align:left"></p>
 <p style="text-align:left">🍵 <strong>T E A</strong></p><p>Hiii Pony•Town 🍎</p><p style="text-align:left">ׂ╰┈➤ She/her</p><p style="text-align:left">ׂ╰┈➤ 26</p><p>ׂ╰┈➤ Furry/animal artist</p><p style="text-align:left"></p>
 <img src="https://i.imgur.com/cZ7zpzN.gif" alt="imgur.com">
-<img src="https://64.media.tumblr.com/fb6a69eff95fc8086691cc1990758241/1e3f52aa3fa01c75-68/s540x810/9a37cc5cb8e8c5907450e53019cfa41f9836775b.pnj" alt="https://www.tumblr.com/curtainhshsh/807917805394706432/scrapped-dividers?source=share">
 <img src="https://64.media.tumblr.com/34b0bcd095fdbf9c5350c25e57327d28/3c787380642d6bd6-06/s540x810/a4c13d7bd252bfdff7ba447e1becd98e52e60c69.jpg" alt="https://www.tumblr.com/crookedporcelain/804689802518757376?source=share">
 <img src="https://64.media.tumblr.com/0ce3355d097e8909ba6b802fe9aead62/cb89bc4e3d47da50-fa/s250x400/e9a13e142382a32d06ec91f408a0cc6a908c87a4.gifv" alt="https://www.tumblr.com/cybergraphix/786029465888342016?source=share">
 <img src="https://64.media.tumblr.com/57930f58a423e33fa87acc2067187911/68ac1049942f2da4-e0/s250x400/6aaf08f5c86ff0139d9944cd3dc1e0711286c0db.gifv" alt="https://www.tumblr.com/anti-rq-daves-cult/782528770157510656?source=share">

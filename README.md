@@ -1,7 +1,7 @@
 <img src="https://64.media.tumblr.com/a0420898bd32a1655940c9f39e732372/9fea7b4689271c42-50/s500x750/a96a15adca3f22a6e3bd4a133adceeeb483b7ac6.pnj" alt="https://www.tumblr.com/molten-pngs/820465575018070017?source=share">
 <blockquote><p style="text-align:center"><code>Art</code> : <a href="https://tearavynn.carrd.co/">Carrd</a> 🎨</p><p style="text-align:center"><code>About</code> : <a href="https://itstea.straw.page">Strawpage</a> ✨️</p></blockquote><p style="text-align:left"></p>
 <p style="text-align:left">🍵 <strong>T E A</strong></p><p>Hiii Pony•Town 🍎</p><p style="text-align:left">ׂ╰┈➤ She/her</p><p style="text-align:left">ׂ╰┈➤ 26</p><p>ׂ╰┈➤ Furry/animal artist</p><p style="text-align:left"></p>
-<img src="https://i.imgur.com/cZ7zpzN.gif" alt="imgur.com">
+
 <img src="https://64.media.tumblr.com/34b0bcd095fdbf9c5350c25e57327d28/3c787380642d6bd6-06/s540x810/a4c13d7bd252bfdff7ba447e1becd98e52e60c69.jpg" alt="https://www.tumblr.com/crookedporcelain/804689802518757376?source=share">
 <img src="https://64.media.tumblr.com/a2b53053d75faff4dc80810dd6ece39d/ca442036ee9d28ee-66/s250x400/2f0534c4038d813cddd726713a05248ee97f8236.gifv" alt="https://www.tumblr.com/miseryundo/817862715032911872?source=share">
 <img src="https://64.media.tumblr.com/0ce3355d097e8909ba6b802fe9aead62/cb89bc4e3d47da50-fa/s250x400/e9a13e142382a32d06ec91f408a0cc6a908c87a4.gifv" alt="https://www.tumblr.com/cybergraphix/786029465888342016?source=share">

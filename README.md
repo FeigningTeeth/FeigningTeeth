@@ -1,4 +1,4 @@
-## Hi there 👋
+<blockquote><p style="text-align:center"><code>Art</code> : <a href="https://tearavynn.carrd.co/">Carrd</a> 🎨</p><p style="text-align:center"><code>About</code> : <a href="https://itstea.straw.page">Strawpage</a> ✨️</p></blockquote><p style="text-align:left">⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ ⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆</p><p style="text-align:left">🍵 <strong>Tea</strong></p><p>Whisp to interact in Pony•Town 🍎</p><p style="text-align:left">ׂ╰┈➤ She/her</p><p style="text-align:left">ׂ╰┈➤ 26</p><p>ׂ╰┈➤ Furry/animal artist</p><p style="text-align:left">⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ ⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆</p>
 
 <!--
 **FeigningTeeth/FeigningTeeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
